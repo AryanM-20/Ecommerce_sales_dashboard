@@ -1,1 +1,1 @@
-# Gala-Stores-_E-commercre-_Sales_Dashboard-
+# Gala-Stores Ecommercre Sales Dashboard
